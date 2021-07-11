@@ -1,0 +1,2 @@
+# Script
+Jangan dibuat Macam"
